@@ -1,1 +1,1 @@
-Hallo Leute! Wir sind Team Magikarp, eine Reformorganisation, die die Welt wirklich verändern will! Ihr habt Fragen? Schreibt eine E-Mail unter egirdauskas@aim.com! Tschüss!
+Hallo Leute! Wir sind Team Magikarp, eine Reformorganisation, die die Welt wirklich verÃ¤ndern will! Ihr habt Fragen? Schreibt eine E-Mail unter egirdauskas@aim.com! TschÃ¼ss! Ihr kÃ¶nnt helfen, indem ihr forkt!
